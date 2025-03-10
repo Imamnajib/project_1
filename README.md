@@ -1,2 +1,2 @@
 # project_1
-ini dia project pertama saya
+ini dia  pertama saya
